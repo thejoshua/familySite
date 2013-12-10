@@ -26,7 +26,6 @@ Joshua
   * [Google+](https://plus.google.com/100547460114744847229)
   * [Miiverse](https://miiverse.nintendo.net/users/joshcb)
   * [flickr](http://www.flickr.com/photos/joshcb/)
+  * [Steam](http://steamcommunity.com/id/joshcb)
+  * [Youtube](http://www.youtube.com/user/joshcb)
   * joshcb@gmail.com
-
-
-  ![](http://placekitten.com/g/250/250)
