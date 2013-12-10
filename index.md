@@ -27,5 +27,8 @@ Joshua
   * [Miiverse](https://miiverse.nintendo.net/users/joshcb)
   * [flickr](http://www.flickr.com/photos/joshcb/)
   * [Steam](http://steamcommunity.com/id/joshcb)
+  * [Xbox Live](https://live.xbox.com/en-US/Profile?GamerTag=joshcb)
+  * [Raptr](http://raptr.com/joshcb/wall)
+  * [GameTZ](http://gametz.com/user/joshcb.html)
   * [Youtube](http://www.youtube.com/user/joshcb)
   * joshcb@gmail.com
