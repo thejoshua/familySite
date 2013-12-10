@@ -2,3 +2,6 @@
 [The Tomlinsons](#!tomlinsons.md)
 [The Cats](#!cats.md)
 [Links](#!links.md)
+
+
+[gimmick:theme](simplex)
