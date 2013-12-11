@@ -5,6 +5,9 @@ William Heathcliff Tomlinson
 -------------------
 
  * [Facebook](https://www.facebook.com/william.tomlinson.1865) 
+ * [Miiverse](https://miiverse.nintendo.net/users/WillTomlinson)
+ * Steam?
+ * HeyGuys@hotmail.com
 
 Jessie Tomlinson
 -----------
@@ -15,5 +18,6 @@ Jessie Tomlinson
 Jackie 'Patrick' Tomlinson
 -----------------
 
+ * [patrickswayze.net](http://www.patrickswayze.net)
  * pswayz@gmail.com
 
