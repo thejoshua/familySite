@@ -21,6 +21,7 @@ Joshua
   * [Facebook](https://www.facebook.com/joshuaholiday)
   * [about.me](http://about.me/jbearden)
   * [Github](http://www.github.com/thejoshua)
+  * [VisualStudio](https://thejoshua.visualstudio.com/)
   * [joshuabearden.com](http://www.joshuabearden.com/)
   * [Wishlist](http://amzn.com/w/5FV12KMGJTIA)
   * [Google+](https://plus.google.com/100547460114744847229)
