@@ -13,6 +13,7 @@ Jessie Tomlinson
 -----------
 
   * [Facebook](https://www.facebook.com/jessie.tomlinson.92)
+  * [Wishlist](http://amzn.com/w/2IOEWUR927EB3)
   * jntomlinson@gmail.com
 
 Jackie 'Patrick' Tomlinson
